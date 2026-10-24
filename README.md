@@ -1,2 +1,2 @@
 # xkitti
-blah blah blah, yes yes, ahh, okay (???)
+blah blah blah, yes yes, oh, okay. (???)
